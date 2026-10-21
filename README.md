@@ -27,4 +27,4 @@ Currently a Research Associate at **Harvard University** (Department of Stem Cel
 - Yang et al. Neuron class-specific responses govern adaptive myelin remodeling in the neocortex. *Science* (2020)
 
 ### Contact
-[LinkedIn](<link>) · [Google Scholar](<link>)
+[LinkedIn](https://www.linkedin.com/in/sungminyang-neuro/) · [Google Scholar](https://scholar.google.com/citations?user=p1wFhNsAAAAJ&hl=es)
